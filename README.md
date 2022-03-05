@@ -17,8 +17,8 @@ Bit from my Github page
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
   -  My Github email
-- https://mega.nz/aff=hFWLuu2WpJU
-- https://www.coinbase.com/join/opress
+- [https://mega.nz/aff=hFWLuu2WpJU](https://mega.nz/aff=hFWLuu2WpJU)
+- [https://www.coinbase.com/join/opress](https://www.coinbase.com/join/opress)
 
 # Index
 
