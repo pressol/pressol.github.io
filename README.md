@@ -29,3 +29,5 @@ Bit from my Github page
 
 - [UK Cycling Brands](/uk_cycling_brands.md)
 - [Tools that I use](/tools.md)
+
+<script src='https://static.cloudflareinsights.com/beacon.min.js' data-cf-beacon='{"token": "0e5ce64397384cf8bb7a36f69140d4bf"}'></script>
