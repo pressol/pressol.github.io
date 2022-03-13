@@ -7,3 +7,5 @@ I will endever to keep this up-to-date as I find brands
 - [Findra](https://bit.ly/3HHWgvZ) - Sustainable Clothing Brand
 - [Velobici](https://bit.ly/3ChsTiN) - UK designed and manufactured
 - [Sturdy Cycles](https://bit.ly/3hCPHjx) - Made to Measure‍ Titanium Bicycles - They look really nice bike would love to own one :smile:
+- [rapha](https://bit.ly/3i4aInz) - UK based company designs in the UK but a lot of the clothing is manufactured in China 
+- [kitbrix](https://bit.ly/3i3skjG) - Great waterproof bags used by British Triathlon and British Cycling 
